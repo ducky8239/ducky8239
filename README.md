@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ducky8239
+- 👀 I’m interested in python and basicly I just want to understand computers and technology in general
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate with nerds how can teach me a thing or two
+- 📫 How to reach me ... well... here I guess
